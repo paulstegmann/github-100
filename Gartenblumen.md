@@ -8,4 +8,6 @@ In dieser Zeit lassen die B채ume viel Licht durch, denn sie haben noch keine Bl�
 
 Noch ist der Boden zu kalt, um ihm N채hrstoffe zu entnehmen. Doch viele Fr체hbl체her haben im Vorjahr Wurzelknollen oder Zwiebeln gebildet, in denen N채hrstoffe gespeichert sind. Davon leben sie nun.
 
-Mit der K채lte haben sie meistens keine Probleme, einige sind dagegen sogar besonders gesch체tzt. ```
+Mit der K채lte haben sie meistens keine Probleme, einige sind dagegen sogar besonders gesch체tzt.
+
+
